@@ -1,5 +1,2 @@
 - 👋 oi me chama Melissa tenho 18 ano
 - 🤠 agro
-- 💞️ namoro 28/03
-- :ghost:rolereza 
-- :kiss: gosto de fofocar com as best 
